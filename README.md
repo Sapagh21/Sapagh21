@@ -1,5 +1,4 @@
-## Hi there 👋
-idk what them niggas put in here but i just wanted to give it a shot
+<img src= "https://www.icegif.com/wp-content/uploads/2024/06/mewing-icegif-2.gif">
 <!--
 **Sapagh21/Sapagh21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
